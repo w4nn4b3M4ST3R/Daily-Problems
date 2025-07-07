@@ -28,4 +28,4 @@ Curious minds who love logical puzzles and neat tricks 🧠
 
 ## ⭐ If you find this helpful, consider giving it a star and joining the journey!
 
-# “Consistency is the key to mastery.” Let’s grow together—one problem, one solution, one day at a time! ⏳🔥
+# “Consistency is the key to mastery.” Let’s grow together — one problem, one solution, one day at a time! ⏳🔥
